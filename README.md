@@ -1,2 +1,0 @@
-# ozthehero
-Publica
